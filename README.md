@@ -1,0 +1,2 @@
+ini push pertama bapak
+
